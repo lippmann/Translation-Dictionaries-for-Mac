@@ -17,6 +17,8 @@ Translators' Dictionaries of Names of Persons and Places for Mac Dictionary.
 
 [MEGA](https://mega.nz/#!MttmGADY!w3DVHsxtCXA8_eCRUZwjpCk8OwPX9n2FnNxhwNggsIA)
 
+[Google Drive](https://drive.google.com/file/d/1d2k14Edh-wbtjCGpqEja6Ea5gXrX4Phx/view?usp=sharing)
+
 [百度网盘](https://pan.baidu.com/s/1PrW-bQxgZgTTmrXxCYEnSQ) 密码:0cei
 
 ## 使用教程
